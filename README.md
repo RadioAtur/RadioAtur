@@ -1,4 +1,4 @@
-# Profile
+# ATUR
 
 ## Aspiring AI Engineer | Gamer | Artist
 
