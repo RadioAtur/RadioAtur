@@ -9,7 +9,7 @@ I am passionately working towards gaining a deep understanding of artificial int
 As a dedicated gamer, I enjoy exploring the digital worlds of **Windows** and **Android** gaming. Whether on PC or mobile, gaming is a source of creativity and inspiration, driving my interest in technology and interactive design.
 
 ### Intellectual Pursuits
-Outside of technology, I am an avid reader and music enthusiast. I enjoy engaging in intellectual gatherings and open-minded discussions, as I believe these experiences foster growth, broaden perspectives, and encourage lifelong learning.
+Outside of technology, I am an music enthusiast. I enjoy engaging in intellectual gatherings and open-minded discussions, as I believe these experiences foster growth, broaden perspectives, and encourage lifelong learning.
 
 ### Founder of CHEVALET STUDIO
 I am the founder of **CHEVALET STUDIO**, a platform dedicated to supporting artists. This creative space is designed to inspire and empower individuals within the art community to showcase their talent and connect with like-minded creators.
